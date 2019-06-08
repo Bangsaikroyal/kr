@@ -1,0 +1,2 @@
+# kr
+Ijan picayo bana
